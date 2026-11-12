@@ -1,1 +1,1 @@
-# Johnny & Linda
+# Johnny & Bobo Churri
